@@ -809,4 +809,4 @@ SO
 YghOksrAYcDiOCJJ  
 xfxDibXADkiGxnrAvqK  
 nqsskjlqFseDKPNpTISboKDtRVV  
-IPT
+IPTC
